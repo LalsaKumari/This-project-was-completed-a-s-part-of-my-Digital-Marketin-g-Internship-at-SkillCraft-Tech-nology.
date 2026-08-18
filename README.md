@@ -1,0 +1,2 @@
+# This-project-was-completed-a-s-part-of-my-Digital-Marketin-g-Internship-at-SkillCraft-Tech-nology.
+The project focuses on defining the brand personality, target audience, communication style, tone of voice, and messaging guidelines to maintain consistency across all marketing channels.Skills Gained:Brand StrategyBrand PositioningContent StrategyAudience Targeting#BrandStrategy #Branding #DigitalMarketing #SkillCraftTechnology
